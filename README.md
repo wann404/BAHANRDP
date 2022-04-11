@@ -4,3 +4,4 @@
 </p>
 
 ## Support Me
+Donate [ click here ](https://telegra.ph/file/70552ded27a4996d770af.jpg)
